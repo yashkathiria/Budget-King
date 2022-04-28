@@ -1,1 +1,1 @@
-# Budget-King|| A Perfect app for your daily planning.
+# Budget-King || A Perfect app for your daily planning.
